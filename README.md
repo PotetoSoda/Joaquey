@@ -1,1 +1,1 @@
-# Joaquey
+# Migthy Ducks Hockey League
